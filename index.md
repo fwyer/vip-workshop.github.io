@@ -4,11 +4,14 @@ The Violence, Instability, and Peace (VIP) Workshop is a virtual forum for schol
 
 ## Fall 2025 Workshop Lineup
 
-### October 1 8am PST/11am EST/3pm GMT
+### October 1, 8am PST/11am EST/3pm GMT
 
 ### November 5, 2024 8am PST/11am EST/3pm GMT
 
 ### December 3, 2025 8am PST/11am EST/3pm GMT
+
+If you are interested in presenting your work this semester, please **apply here** by August 29th, 11:59 pm EDT: [https://forms.gle/gN7yUQKBudiKhnqdA](url)
+
 
 # Workshop Information
 
